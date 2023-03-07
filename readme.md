@@ -57,11 +57,16 @@ Pour m'éloigner des joutes verbales puériles de adultes, ou de leurs questions
 Petit à petit, ces souvenirs se sont accumulés en moi, et je les ai réuni au sein d'une sorte de petit doudou intime.
 Mon petit loup était né.
 
+#### Ma singularité
 Au delà de ces quelques égratignures d'enfance, je remarquais souvent, de manière très répétée, que je n'avais pas les mêmes souvenirs... que je ne comprenais pas les situations, comme mon entourage...
 J'avais tendance à faire des pas de côté dans mes relations, à voir les choses sous plusieurs angles, comme pour me protéger d'un risque de violence de la part de l'autre.  
 Je cherchais à déceler le jugement dans leurs regard, et à mesurer leurs intentions.  
 Le doute était ma philosophie de vie.  
 Je m'astreignais à douter de tout, à analyser, à chercher... Et lorsque la méthode scientifique m'a été présentée à l'école j'ai tout de suite adhéré à cet idéal philosophique.  
+Une promesse intérieure se formait en moi ; j'essayerais de toujours faire l'éloge de la raison et de la rigueur, de douter de moi-même, et de mes perceptions du monde qui m'entoure.  
+
+Mon école et notre appartement familial est situé en hauteur au dessus d'une grande ville, avec un grand domaine universitaire scientifique.  
+Alors là, assis sur la pelouse de l'école, je disais déjà à mes petits camarades en pointant du doigt l'Université ; quand je serais grand j'irais travailler là bas.  
 
 
 Au fil du temps, les expériences de ma vie m'ont amené à faire grandir ce loup.  
