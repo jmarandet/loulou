@@ -91,11 +91,14 @@ En vrai... il est surtout né sur mon ennui.
 Alors que mon grand frère partait jouer au foot avec ses copains, je choisissais souvent de m'éloigner et de rester seul chez moi.  
 Avec ma maman je faisais de la cuisine, j'apprenais à tricoter, je faisais des puzzles, je dévorais les livres, j'exerçais mon oeil pour le dessin, pour la calygraphie,...   
 Des activités qui me plaisaient et répondait à mon inlassable curiosité ; je me sentais enrichi et plus fort de ces connaissances.  
-Mais que je ne partageais pas bien avec les amis de mon entourage.  
-L'impression d'être étrange à ne pas m'interesser au foot comme tout le monde *devait* le faire.  
+Mais que je ne partageais pas bien, ni avec mes amis, ni avec mon entourage.  
+L'impression d'être étrange, soit trop dispersé, soit pas assez solide.  
+Et puis il est vrai que je ne m'interessais pas au foot comme tout le monde *devait* le faire.  
+![activites](img/activites.jpg)
 
 J'avais l'impression que mon développement, mes intérêts, n'étaient vraiment pas comme il faut...  
-Que dans tout ça, ce "loup" était un peu incompréhensible pour les autres, qu'il n'est pas présentable...   
+Que dans tout ça, ce "loup" était un peu incompréhensible pour les autres, qu'il n'est pas présentable...  
+A force d'être touche à tout j'étais surtout très moyen de partout, je n'excellais en rien.  
 Et puis je vois bien qu'il n'a pas sa place avec mon entourage.  
 Lorsqu'il sort le bout de son nez je ressens les frémissements autour de moi...  
 Et dès qu'il donne un tout petit peu de sa voix je vois les gens se figer ou se braquer contre moi...  
@@ -126,30 +129,37 @@ J'ai fait mes premières bétises dont la pudeur et la honte m'oblige encore auj
 
 Pendant que mes parents dormaient, je prenais l'habitude de profiter de cette solitude pour explorer mon univers.
 
-Je pouvais regarder la télévision, et les feuilletons pour adultes qui étaient alors proposés. Je m'évaillais à une grande variété de stimulations et d'intérêts. Dont certains extrêmes pouvaient suciter de belles curiosités.    
+Je regardais souvent la télévision, et les feuilletons pour adultes qui étaient alors proposés. Je m'évaillais à une grande variété de stimulations et d'intérêts. Dont certains extrêmes pouvaient suciter de belles curiosités.    
 ![reve de cuir](img/reve_de_cuir.png)  
 Je voulais sans cesse explorer, voir comment vivaient les autres, tester les limites... 
 Je me faufilais dans la nuit pour observer mille une choses habituellement interdites d'accès et cachées des regards.    
-
+J'avais beau être jeune, je marchait dans les rues parfois longtemps, et loin, explorant la ville pendant que tout le monde dormais.  
 
 J'avais parfaitement conscience des interdits que je bravais, et j'étais assez heureux de la manière dont j'arrivais à jongler avec les univers, et à dissimuler mes activités.  
 Je n'étais pas peu fier de mon loup...  
-Plus son univers s'assombrissait, et plus j'avais peur qu'il se dévoile.
-Et dans le même temps il me faisait jongler avec tellement de choses ; la musique, les études, les amours, ...
-J'ai été un peu perdu et dépassé par toutes ces fugues... et je ne voulais pas que mon loup mange à n'importe quel ratelier.
+Plus son univers s'assombrissait, plus cela m'excitait et plus j'avais peur qu'il ne soit dévoilé.
+Et dans le même temps cette curiosité me faisait jongler avec tellement de choses ; la musique, les dessin, les sciences, les études, les amours, ...
+
+## La naissance de pieretleloup
+Arrivé à l'université j'ai été un peu perdu et dépassé par toutes ces fugues... et je ne voulais pas que mon loup mange à n'importe quel ratelier.
 Alors lorsqu'il a trouvé une relation avec un couple respectueux et proche de chez moi, je me suis senti heureux et rassuré.
+J'avais un cadre et des partenaires avec qui je pouvais complètement me mettre à nu et déployer ce loup ; ce cadre était respectueux, et me permettait de conserver ma vie sociale.
+J'illustrais cela par une identité virtuelle ; mes univers séparés prenaient un corps ; celui de **pieretleloup**.
 
 Puis, à l'université j'ai rencontré A., que je trouvais belle et merveilleuse.
 Elle était vraiment forte et passionnante, elle m'a beaucoup aidé à me canaliser dans ma vie.
-J'ai eu envie de recentrer ma vie et mon énergie autour d'elle.
+Cette rencontre est venu percuter la relation qui avais été établie autour de mon loup. 
+Et j'ai dû faire un choix.
+J'ai eu envie de recentrer ma vie et mon énergie autour d'A.
 J'espérais que mon loup serait sage, et qu'il prendrait plaisir à s'épanouir avec elle.
 
-Au début A. n'était pas trop à l'aise avec ce loup.
+Au début A. n'était vraiment pas à l'aise avec ce loup.
 Elle me demanda si je pouvais le laisser à la porte, et j'ai dit oui en pensant que c'était normal de réagir ainsi et qu'on verrais comment les choses évoluent.
 Peut être arriverais-je à me détacher de ce loup, ou bien à l'inverse peut être que A. accepterais un jour de le faire rentrer chez nous.
 
 Les années ont passé et j'ai partagé de merveilleuses et belles aventures avec A.
-A. me fait penser à un grand cheval blanc, droite et puissante.
+A. me fait penser à un grand cheval blanc, capable d'avancer de manière solide et déterminée, droite et puissante.
+J'ai toujours admiré sa détermination.
 Pourtant mon loup ne me quittait pas, il était juste enfermé dans un petit recoin de mon coeur.
 De temps en temps, lorsque j'avais des passages à vide, je lui ouvrais un peu discrètement la cage pour me tenir compagnie. 
 Quelques petit tours en rond discrètement.
