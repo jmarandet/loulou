@@ -33,11 +33,13 @@ Parce que je sais que de mon côté je l'aime toujours, et que je ne comprends t
 Entre 2 et 6 ans j'ai beaucoup joué avec une voisine qui est juste un peu plus jeune que moi. On pouvait être gardé chez l'un ou chez l'autre, et on a eu de très nombreux jeux de petit enfant, avec des cache-cache et des petites luttes... Cela m'a laissé une mémoire très égalitaire dans mes rapports avec les filles. J'ai toujours respecté et admiré leurs forces physiques et mentale, et j'ai toujours aimé lier amitié avec elles.
 
 #### mes petits jeux à moi
-Chez moi je prenais énormément de plaisirs à m'enrouler dans ma couverture, et à me faire tomber dans un recoin, je pouvais rester très longtemps ainsi confiné.
+Chez moi je prenais énormément de plaisirs à m'enrouler dans ma couverture, et à me faire tomber dans un recoin, je pouvais rester très longtemps ainsi confiné.  
+![shishi-lit](img/sushi-lit.jpg)  
 
 #### La cours de récré
 Ces petits traits de caractères étaient légers, mais pourtant à l'école je ne m'intégrais pas trop dans les bandes d'amis. La perte de mon grand ami d'enfance était une blessure qui m'accompagnait tous les jours. Je ne comprenais pas pourquoi il ne me trouvais pas intéressant, alors lorsque je le voyait jouer avec les autres je me sentais vraiment nul. Et je n'arrivais plus à avoir envie de nouer une relation avec les autres.
-Alors à la cours de récré de mon école, je m'asseyais souvent seul dans un coin ; à observer les autres de loin.
+Alors à la cours de récré de mon école, je m'asseyais souvent seul dans un coin ; à observer les autres de loin.  
+![ecole](img/ecole.jpg)
 
 Parfois certains enfants venaient me rendre visite, j'essayais de rendre le change, sans trop y croire.  
 Finalement je commençais à aimer observer les autres de loin ; voir comment les gens interagissent.  
@@ -100,6 +102,12 @@ Et dès qu'il donne un tout petit peu de sa voix je vois les gens se figer ou se
 Alors je le garde au chaud, je n'en parle pas forcément aux autres, et je préfère le laisser gambader lorsque je sens qu'il est en sécurité.
 
 Je m'habituais ainsi à être étranger aux autres, à avoir mes pensées pour moi, et à ne pas souffrir de nos différences (en tout cas à essayer de le cacher).
+
+Un autre élément qui me marquait dans cette période, c'était que j'ai toujours grandi dans une barre d'immeuble dans un quartier un peu dortoir.  
+Et il y a une sorte de contradiction, de frustration, à se savoir entouré de tant de monde ; et pourtant de se sentir seul sans vraiment de lien avec les gens autour de moi.  
+Je sais que j'exagère les choses en écrivant cela, car il y avait de nombreuses personnes autour de mes parents qui étaient et sont admirables et bien intentionnées.  
+Mais je crois que de mon point de vue, je ressens des difficultés dans cette multitude urbaine.  
+Croiser autant de monde autour de chez soi sans savoir qui sont ces gens.  
 
 #### Akira
 
@@ -171,7 +179,8 @@ Forcément.
 Toujours un jour...
 
 Ce mauvais manège aurais pu durer longtemps.
-5 ans de vie commune, puis 10, un mariage, puis 15,...
+5 ans de vie commune, puis 10, un mariage, puis 15,...  
+![chariot](img/chariot.jpg)  
 Sur cette route pleine de cailloux et de nids de poules, notre couple formé d'un cheval blanc et d'un loup un peu miteu tirait toujours la charrue, et accueillait un beau lapin, un chat, puis deux enfants... et nous achetions notre première maison.
 Tout était merveilleux.
 
