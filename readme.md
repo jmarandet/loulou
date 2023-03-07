@@ -7,7 +7,7 @@ Je sais que je ne suis qu'une seule et même personne ; mais je me rend compte q
 
 En général je suis plutôt du genre à réussir ce que j'entreprend, j'ai un travail intéressant, une belle famille, une belle maison, de belles idées plein la tête...
 
-Malgré cela il y a quelques mois, j'ai eu des idées dans la tête que je ne pensais jamais possibles ; celle de mettre fin à mes jours, ou celle de faire beaucoup de mal à ceux qui me sont chers et proches de moi.
+Malgré cela il y a quelques mois, j'ai eu des idées que je ne pensais jamais possibles ; celle de mettre fin à mes jours, ou celle de faire beaucoup de mal à ceux qui me sont chers et proches de moi.
 
 
 Ces pensées m'ont vraiment effrayées, et je n'ai pas eu d'acte malveillant, heureusement.  
@@ -68,7 +68,15 @@ Une promesse intérieure se formait en moi ; j'essayerais de toujours faire l'é
 Mon école et notre appartement familial est situé en hauteur au dessus d'une grande ville, avec un grand domaine universitaire scientifique.  
 Alors là, assis sur la pelouse de l'école, je disais déjà à mes petits camarades en pointant du doigt l'Université ; quand je serais grand j'irais travailler là bas.  
 
+Ce choix de vie philosophie était aussi accompagné et soutenu par des préférences culturelles.  
+Je me sentais très proche d'**Astro le petit robot** dont j'admirais tellement la force, la gentillesse, la politesse... 
+![Astro](img/astro--le-petit-robot.jpg)
 
+Et le film de **la Reine des neige** inspiré du compte de Hans Christian Andersen a profondément marué mon esprit et... touché mon coeur...
+![reine des neiges](img/1280px-The_Snow_Queen_by_Elena_Ringo.jpg)
+
+
+#### Mon petit Prométhée  
 Au fil du temps, les expériences de ma vie m'ont amené à faire grandir ce loup.  
 Lorsque je me sentais seul, et avait peur d'aller vers les autres, ce petit loup me tenait compagnie.  
 Lorsque je me sentais en difficultés, ce petit loup me donnait des idées souvent originales ; il me donnait des solutions auquel personne ne songeait, je me sentait malin, ça me rendait fier.  
@@ -76,13 +84,23 @@ Lorsque je me sentais en difficultés, ce petit loup me donnait des idées souve
 Je le nourris de toute sortes de choses, il me donne un grand appétit presque insatiable, il me donne une grande curiosité et je le trouve vraiment merveilleux.  
 Je peux manger comme quatre, gravir des montagnes, je peux m’intéresser à tous les sujets, j'ai souvent le sentiment que ce loup me donne des supers-pouvoir, qu'il me tire vers le haut et me donne le courage de faire des choses incroyables.  
 
-En vrai... il est surtout né sur mon ennui.
-Alors que mon grand frère partait jouer au foot avec ses copains, je choisissais souvent de m'éloigner et de rester seul chez moi.
+En vrai... il est surtout né sur mon ennui.  
+Alors que mon grand frère partait jouer au foot avec ses copains, je choisissais souvent de m'éloigner et de rester seul chez moi.  
+Avec ma maman je faisais de la cuisine, j'apprenais à tricoter, je faisais des puzzles, je dévorais les livres, j'exerçais mon oeil pour le dessin, pour la calygraphie,...   
+Des activités qui me plaisaient et répondait à mon inlassable curiosité ; je me sentais enrichi et plus fort de ces connaissances.  
+Mais que je ne partageais pas bien avec les amis de mon entourage.  
+L'impression d'être étrange à ne pas m'interesser au foot comme tout le monde *devait* le faire.  
 
-Mais il est vraiment pas comme il faut... Il n'est pas présentable... Et puis je vois bien qu'il n'a pas sa place avec mon entourage.  
+J'avais l'impression que mon développement, mes intérêts, n'étaient vraiment pas comme il faut...  
+Que dans tout ça, ce "loup" était un peu incompréhensible pour les autres, qu'il n'est pas présentable...   
+Et puis je vois bien qu'il n'a pas sa place avec mon entourage.  
 Lorsqu'il sort le bout de son nez je ressens les frémissements autour de moi...  
 Et dès qu'il donne un tout petit peu de sa voix je vois les gens se figer ou se braquer contre moi...  
 Alors je le garde au chaud, je n'en parle pas forcément aux autres, et je préfère le laisser gambader lorsque je sens qu'il est en sécurité.
+
+Je m'habituais ainsi à être étranger aux autres, à avoir mes pensées pour moi, et à ne pas souffrir de nos différences (en tout cas à essayer de le cacher).
+
+#### Akira
 
 Lorsque j'ai été adolescent, je partageais rarement les mêmes regards sur les choses que mon entourage.
 Et là encore, je ne savais pas comment faire pour partager mes idées.
@@ -94,6 +112,19 @@ Sans véritable attache...
 
 Et puis mon loup a grandit, et son appétit s'est aiguisé, ses crocs se sont allongés,... il devenait capable d'endurer de longues distances...
 Alors pour le rassasier de temps à autre je l'ai emmené satisfaire ses appétits vers des horizons plus riches, plus sauvages, plus sombres.
+J'ai fait mes premières bétises dont la pudeur et la honte m'oblige encore aujourd'hui à en taire la teneur.  
+![akira](img/akira.jpg)
+
+Pendant que mes parents dormaient, je prenais l'habitude de profiter de cette solitude pour explorer mon univers.
+
+Je pouvais regarder la télévision, et les feuilletons pour adultes qui étaient alors proposés. Je m'évaillais à une grande variété de stimulations et d'intérêts. Dont certains extrêmes pouvaient suciter de belles curiosités.    
+![reve de cuir](img/reve_de_cuir.png)  
+Je voulais sans cesse explorer, voir comment vivaient les autres, tester les limites... 
+Je me faufilais dans la nuit pour observer mille une choses habituellement interdites d'accès et cachées des regards.    
+
+
+J'avais parfaitement conscience des interdits que je bravais, et j'étais assez heureux de la manière dont j'arrivais à jongler avec les univers, et à dissimuler mes activités.  
+Je n'étais pas peu fier de mon loup...  
 Plus son univers s'assombrissait, et plus j'avais peur qu'il se dévoile.
 Et dans le même temps il me faisait jongler avec tellement de choses ; la musique, les études, les amours, ...
 J'ai été un peu perdu et dépassé par toutes ces fugues... et je ne voulais pas que mon loup mange à n'importe quel ratelier.
