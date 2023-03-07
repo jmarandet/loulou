@@ -1,4 +1,4 @@
-## Introdutction
+## Introduction
 Je m'appelle Julien, j'ai 41ans, et je vis avec un loup intérieur.  
 En fait, lorsque je parle de quelque chose que je décrit comme un loup, aujourd'hui, à 41ans, j'essaie de décrire et de donner un corps à des pensées que je peux avoir.  
 Je sais que je ne suis qu'une seule et même personne ; mais je me rend compte que je ne peux ou n'arrive souvent pas à être "entier" et qu'il y a une grande part de moi que je n'exprime pas, que je passe sous silence, et qui reste dans l'ombre.
@@ -20,7 +20,7 @@ Cette histoire en fait partie, elle donne un éclairage sur mes ombres, et j'esp
 Lorsque j'étais petit, comme tout un chacun, j'ai mémorisé des souvenirs qui m'ont marqué. Pourtant assez rapidement j'ai ressenti que je n'arrivais pas à partager suffisament mes sentiments avec les autres, et à me sentir en confiance.
 
 #### mon ami D.
-En maternelle j'avais un ami de mon âge ; nous étions nés dans la même maternité à quelques jours d'écarts, nos parents étaient amis et se voyaient souvent, je jouais beaucoup chez lui. Je l'aimais vraiment beaucoup, je pense que je m'étais attaché à lui comme à un frère, mon vrai grand premier ami, à moi. Et je conserve toujours encore sur mno coeur de nombreux souvenirs de cette époque dorée.   
+En maternelle j'avais un ami de mon âge ; nous étions nés dans la même maternité à quelques jours d'écarts, nos parents étaient amis et se voyaient souvent, je jouais beaucoup chez lui. Je l'aimais vraiment beaucoup, je pense que je m'étais attaché à lui comme à un frère, mon vrai grand premier ami, à moi. Et je conserve toujours encore sur mon coeur de nombreux souvenirs de cette époque dorée.   
 
 ![boule et chuck](img/boul_bill_33.jpg)
 
@@ -35,11 +35,11 @@ Entre 2 et 6 ans j'ai beaucoup joué avec une voisine qui est juste un peu plus 
 Chez moi je prenais énormément de plaisirs à m'enrouler dans ma couverture, et à me faire tomber dans un recoin, je pouvais rester très longtemps ainsi confiné.
 
 #### La cours de récré
-Ces petits traits de caractères étaient légers, mais pourtant à l'école je ne m'intégrais pas trop dans les bandes d'amis. La perte de mon grand ami d'enfance était une blessure qui m'accompagnait tous les jours. Lorsque je le voyait jouer avec les autres je me sentais nul et pas intéressant.
-A la cours de récré de mon école primaire, je m'asseyais souvent seul dans un coin ; à observer les autres de loin.
+Ces petits traits de caractères étaient légers, mais pourtant à l'école je ne m'intégrais pas trop dans les bandes d'amis. La perte de mon grand ami d'enfance était une blessure qui m'accompagnait tous les jours. Je ne comprenais pas pourquoi il ne me trouvais pas intéressant, alors lorsque je le voyait jouer avec les autres je me sentais vraiment nul. Et je n'arrivais plus à avoir envie de nouer une relation avec les autres.
+Alors à la cours de récré de mon école, je m'asseyais souvent seul dans un coin ; à observer les autres de loin.
 
-Parfois certains enfants venaient me rendre visite, j'essayais de rendre le change, sans trop y croire.
-J'ai toujours aimé observer les autres de loin ; voir comment les gens interagissent.
+Parfois certains enfants venaient me rendre visite, j'essayais de rendre le change, sans trop y croire.  
+Finalement je commençais à aimer observer les autres de loin ; voir comment les gens interagissent.  
 J'ai appris à ne pas trop m'attarder sur les détails des histoires que j'observais, ce qui pouvait être "personnels" et ne me concernait pas. Mais j'aimais observer toutes ces expériences de vie...
 
 #### Les repas de familles
