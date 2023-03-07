@@ -1,13 +1,16 @@
-Je m'appelle Julien, j'ai 41ans, et je vis avec un loup intérieur.
-En fait, lorsque je parle de quelque chose que je décrit comme un loup, aujourd'hui, à 41ans, j'essaie de décrire et de donner un corps à des pensées que je peux avoir.
+## Introdutction
+Je m'appelle Julien, j'ai 41ans, et je vis avec un loup intérieur.  
+En fait, lorsque je parle de quelque chose que je décrit comme un loup, aujourd'hui, à 41ans, j'essaie de décrire et de donner un corps à des pensées que je peux avoir.  
 Je sais que je ne suis qu'une seule et même personne ; mais je me rend compte que je ne peux ou n'arrive souvent pas à être "entier" et qu'il y a une grande part de moi que je n'exprime pas, que je passe sous silence, et qui reste dans l'ombre.
 
 ![juloup](img/juloup_1_2.jpg)
 
 En général je suis plutôt du genre à réussir ce que j'entreprend, j'ai un travail intéressant, une belle famille, une belle maison, de belles idées plein la tête...
+
 Malgré cela il y a quelques mois, j'ai eu des idées dans la tête que je ne pensais jamais possibles ; celle de mettre fin à mes jours, ou celle de faire beaucoup de mal à ceux qui me sont chers et proches de moi.
 
-Ces pensées m'ont vraiment effrayées, et je n'ai pas eu d'acte malveillant, heureusement.
+
+Ces pensées m'ont vraiment effrayées, et je n'ai pas eu d'acte malveillant, heureusement.  
 Je suis allé voir un psy, et j'ai commencé à bouleverser les choses de ma vie.
 Cette histoire en fait partie, elle donne un éclairage sur mes ombres, et j'espère que cela pourrait aider d'autres personnes qui se sentiraient proches de ce genre de situation.
 
@@ -17,9 +20,12 @@ Cette histoire en fait partie, elle donne un éclairage sur mes ombres, et j'esp
 Lorsque j'étais petit, comme tout un chacun, j'ai mémorisé des souvenirs qui m'ont marqué. Pourtant assez rapidement j'ai ressenti que je n'arrivais pas à partager suffisament mes sentiments avec les autres, et à me sentir en confiance.
 
 #### mon ami D.
-En maternelle j'avais un ami de mon âge ; nous étions nés dans la même maternité à quelques jours d'écarts, nos parents étaient amis et se voyaient souvent, je jouais beaucoup chez lui. Je l'aimais vraiment beaucoup, je pense que je m'étais attaché à lui comme à un frère, mon vrai grand premier ami, à moi. Et je conserve toujours encore sur mno coeur de nombreux souvenirs de cette époque dorée. 
+En maternelle j'avais un ami de mon âge ; nous étions nés dans la même maternité à quelques jours d'écarts, nos parents étaient amis et se voyaient souvent, je jouais beaucoup chez lui. Je l'aimais vraiment beaucoup, je pense que je m'étais attaché à lui comme à un frère, mon vrai grand premier ami, à moi. Et je conserve toujours encore sur mno coeur de nombreux souvenirs de cette époque dorée.   
+
 ![boule et chuck](img/boul_bill_33.jpg)
+
 Mais lors du divorce de ses parents quelque choses s'est brisé entre nous ; il a fait le choix de s'éloigner de moi et de jouer avec d'autres amis, et cela a laissé un immense vide sur mon coeur qui m'a poursuivi jusqu'à mes 20 ans.
+
 Parce que je sais que de mon côté je l'aime toujours, et que je ne comprends toujours pas pourquoi il s'est éloigné de moi.
 
 #### ma petite voisine.
