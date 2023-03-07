@@ -1,7 +1,8 @@
 ## Introduction
 Je m'appelle Julien, j'ai 41ans, et je vis avec un loup intérieur.  
 En fait, lorsque je parle de quelque chose que je décrit comme un loup, aujourd'hui, à 41ans, j'essaie de décrire et de donner un corps à des pensées que je peux avoir.  
-Je sais que je ne suis qu'une seule et même personne ; mais je me rend compte que je ne peux ou n'arrive souvent pas à être "entier" et qu'il y a une grande part de moi que je n'exprime pas, que je passe sous silence, et qui reste dans l'ombre.
+Je sais que je ne suis qu'une seule et même personne ; mais je me rend compte que je ne peux ou n'arrive souvent pas à être "entier" et qu'il y a une grande part de moi que je n'exprime pas, que je passe sous silence, et qui reste dans l'ombre.  
+Ces sortes de non-dits génèrent souvent une gène dans mes interactions avec les autres. La gène peut apparaître dans mon esprit, ou dans celle de mes interlocuteurs, et je me sens très affecté par les difficultés de s'accorder mutuellement.  
 
 ![juloup](img/juloup_1_2.jpg)
 
@@ -62,18 +63,18 @@ Au delà de ces quelques égratignures d'enfance, je remarquais souvent, de mani
 J'avais tendance à faire des pas de côté dans mes relations, à voir les choses sous plusieurs angles, comme pour me protéger d'un risque de violence de la part de l'autre.  
 Je cherchais à déceler le jugement dans leurs regard, et à mesurer leurs intentions.  
 Le doute était ma philosophie de vie.  
-Je m'astreignais à douter de tout, à analyser, à chercher... Et lorsque la méthode scientifique m'a été présentée à l'école j'ai tout de suite adhéré à cet idéal philosophique.  
+Je m'astreignais à douter de tout, à analyser, à chercher... Et lorsque la méthode scientifique m'a été présentée à l'école je crois que j'ai tout de suite adhéré à cet idéal philosophique.  
 Une promesse intérieure se formait en moi ; j'essayerais de toujours faire l'éloge de la raison et de la rigueur, de douter de moi-même, et de mes perceptions du monde qui m'entoure.  
 
 Mon école et notre appartement familial est situé en hauteur au dessus d'une grande ville, avec un grand domaine universitaire scientifique.  
 Alors là, assis sur la pelouse de l'école, je disais déjà à mes petits camarades en pointant du doigt l'Université ; quand je serais grand j'irais travailler là bas.  
 
 Ce choix de vie philosophie était aussi accompagné et soutenu par des préférences culturelles.  
-Je me sentais très proche d'**Astro le petit robot** dont j'admirais tellement la force, la gentillesse, la politesse... 
-![Astro](img/astro--le-petit-robot.jpg)
+Je me sentais très proche d'**Astro le petit robot** dont j'admirais tellement la force, la gentillesse, la politesse...   
+![Astro](img/astro--le-petit-robot.jpg)  
 
-Et le film de **la Reine des neige** inspiré du compte de Hans Christian Andersen a profondément marué mon esprit et... touché mon coeur...
-![reine des neiges](img/1280px-The_Snow_Queen_by_Elena_Ringo.jpg)
+Et le film de **la Reine des neige** inspiré du compte de Hans Christian Andersen a profondément marqué mon esprit et touché mon coeur  
+![reine des neiges](img/1280px-The_Snow_Queen_by_Elena_Ringo.jpg)  
 
 
 #### Mon petit Prométhée  
