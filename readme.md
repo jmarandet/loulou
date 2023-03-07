@@ -58,21 +58,25 @@ Petit à petit, ces souvenirs se sont accumulés en moi, et je les ai réuni au 
 Mon petit loup était né.
 
 Au delà de ces quelques égratignures d'enfance, je remarquais souvent, de manière très répétée, que je n'avais pas les mêmes souvenirs... que je ne comprenais pas les situations, comme mon entourage...
-J'avais tendance à faire des pas de côté dans mes relations, à voir les choses sous plusieurs angles, comme pour me protéger d'un risque de violence de la part de l'autre.
-Le doute était ma philosophie de vie.
-Je m'astreignais à douter de tout, à analyser, à chercher... j'ai
+J'avais tendance à faire des pas de côté dans mes relations, à voir les choses sous plusieurs angles, comme pour me protéger d'un risque de violence de la part de l'autre.  
+Je cherchais à déceler le jugement dans leurs regard, et à mesurer leurs intentions.  
+Le doute était ma philosophie de vie.  
+Je m'astreignais à douter de tout, à analyser, à chercher... Et lorsque la méthode scientifique m'a été présentée à l'école j'ai tout de suite adhéré à cet idéal philosophique.  
 
 
-Au fil du temps, les expériences de ma vie m'ont amené à faire grandir ce loup.
-Lorsque je me sentais seul, et avait peur d'aller vers les autres, ce petit loup me tenait compagnie.
-Lorsque je me sentais en difficultés, ce petit loup me donnait des idées souvent originales ; il me donnait des solutions auquel personne ne songeait, je me sentait malin, ça me rendait fier.
+Au fil du temps, les expériences de ma vie m'ont amené à faire grandir ce loup.  
+Lorsque je me sentais seul, et avait peur d'aller vers les autres, ce petit loup me tenait compagnie.  
+Lorsque je me sentais en difficultés, ce petit loup me donnait des idées souvent originales ; il me donnait des solutions auquel personne ne songeait, je me sentait malin, ça me rendait fier.  
 
-Je le nourris de toute sortes de choses, il me donne un grand appétit presque insatiable, il me donne une grande curiosité et je le trouve vraiment merveilleux.
-Je peux manger comme quatre, gravir des montagnes, je peux m’intéresser à tous les sujets, j'ai souvent le sentiment que ce loup me donne des supers-pouvoir, qu'il me tire vers le haut et me donne le courage de faire des choses incroyables.
+Je le nourris de toute sortes de choses, il me donne un grand appétit presque insatiable, il me donne une grande curiosité et je le trouve vraiment merveilleux.  
+Je peux manger comme quatre, gravir des montagnes, je peux m’intéresser à tous les sujets, j'ai souvent le sentiment que ce loup me donne des supers-pouvoir, qu'il me tire vers le haut et me donne le courage de faire des choses incroyables.  
 
-Mais il est vraiment pas comme il faut... Il n'est pas présentable... Et puis je vois bien qu'il n'a pas sa place avec mon entourage.
-Lorsqu'il sort le bout de son nez je ressens les frémissements autour de moi...
-Et dès qu'il donne un tout petit peu de sa voix je vois les gens se figer ou se braquer contre moi...
+En vrai... il est surtout né sur mon ennui.
+Alors que mon grand frère partait jouer au foot avec ses copains, je choisissais souvent de m'éloigner et de rester seul chez moi.
+
+Mais il est vraiment pas comme il faut... Il n'est pas présentable... Et puis je vois bien qu'il n'a pas sa place avec mon entourage.  
+Lorsqu'il sort le bout de son nez je ressens les frémissements autour de moi...  
+Et dès qu'il donne un tout petit peu de sa voix je vois les gens se figer ou se braquer contre moi...  
 Alors je le garde au chaud, je n'en parle pas forcément aux autres, et je préfère le laisser gambader lorsque je sens qu'il est en sécurité.
 
 Lorsque j'ai été adolescent, je partageais rarement les mêmes regards sur les choses que mon entourage.
