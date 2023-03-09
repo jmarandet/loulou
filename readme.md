@@ -141,7 +141,10 @@ Plus son univers s'assombrissait, plus cela m'excitait et plus j'avais peur qu'i
 Et dans le même temps cette curiosité me faisait jongler avec tellement de choses ; la musique, les dessin, les sciences, les études, les amours, ...
 
 ## La naissance de pieretleloup
-Arrivé à l'université j'ai été un peu perdu et dépassé par toutes ces fugues... et je ne voulais pas que mon loup mange à n'importe quel ratelier.
+Dès ma majorité j'ai tout de suite recherché des personnes avec qui je pourrais parler d'univers sombres et décalés sans aucun tabou. N'ayant personne de mon entourage avec qui je me sentais en confiance pour aborder ces questions, j'ai utilisé internet ; et dès l'obtention de mon permis de conduire, j'ai rencontré des personnes parfois très éloignées.
+Je réalisais des sortes de grandes fugues vers l'inconnu, qui me projetais chez des gens très différents de moi.
+
+Mais au bout de quelques années je me suis senti un peu perdu et dépassé par toutes ces fugues... et je ne voulais pas que mon loup mange à n'importe quel ratelier.
 Alors lorsqu'il a trouvé une relation avec un couple respectueux et proche de chez moi, je me suis senti heureux et rassuré.
 J'avais un cadre et des partenaires avec qui je pouvais complètement me mettre à nu et déployer ce loup ; ce cadre était respectueux, et me permettait de conserver ma vie sociale.
 J'illustrais cela par une identité virtuelle ; mes univers séparés prenaient un corps ; celui de **pieretleloup**.
@@ -168,7 +171,7 @@ Et le loup se remettait doucement à frétiller, alors je cherchais comment le r
 Mais il était censé être resté à la porte ce loup... et voilà qu'en un rien de temps il grossissait à vue d'oeil, aussi emcombrant qu'un éléphant. 
 Et puis je me suis adapté à la situation ; à faire semblant d'être normal, tout en gérant mon loup tant bien que mal.
 
-Aux côtés du grand cheval blanc de A., mon loup suivait la trace et nous servait en me donnant la force de tenir et d'engager nos aventures.
+Aux côtés du grand cheval blanc de A., mon loup se tenait loin derrière pour suivre notre la trace, même s'il nous servait en me donnant la force de tenir et d'engager nos aventures.
 Je le gérais, un peu au loin, sans qu'il se fasse trop remarquer.
 
 Mais malgré mes attentions, voilà que mon loup s'agittait et demandais à sortir de plus en plus.
@@ -219,9 +222,9 @@ Le grand méchant loup a été chassé du tableau, et je suis redevenu libre et 
 Oui il a été chassé.
 Mon coeur était effectivement purgé.
 Sauf qu'il avait laissé place à un désert...
-Mon loup n'était maintenant plus là pour me venir en aide, et mon coeur était maintenant laissé à l'abandon, complètement nu, et si plein de vides...
+Mon loup n'était maintenant plus là pour me venir en aide, et tout un pan de mon coeur était maintenant laissé à l'abandon, complètement nu, sec, craquelé, et si plein de vides...
 
-Alors, lorsque les difficultés de la vie se sont présentées à moi, je les ai pris en pleine face, sans savoir où trouver de réconfort.
+Alors, lorsque les difficultés de la vie se sont présentées à moi, je les ai pris en pleine face, sans avoir la force intérieur pour les dévorer, et sans savoir où trouver de réconfort.
 Et j'ai eu mal.
 Très mal.
 Les petites choses de la vie que j'enjambaient ou contournait avec détermination, devenaient pour moi des épreuves immenses.
@@ -232,6 +235,7 @@ Au lieu de déborder d'énergie et d'appétit, je me sentais maintenant à l'opp
 Mon coeur était devenu un trou noir insondable, où la moindre émotion se trouvait absorbée et entraînée dans des profondeurs infinies.
 Presque toutes les nuits, je pleurais, seul dans mon coin de lit.
 A. ne se rendait pas forcément compte de ce qu'il se passait, puisque pendant la journée je conservais les mêmes habitudes de façade.
+En fait j'étais de plus en plus irritable, je pouvais avoir tendance à boire, ou à vouloir rester seul.
 Et j'avais le sentiment que A. était toujours fachée et à l'affut de savoir si j'allais encore faire sortir mon loup.
 Pourtant il était vraiment parti.
 Et c'est là qu'a commencé pour moi la période la plus douloureuse de ma vie, durant laquelle je me suis senti progressivement mourir de tristesse et d'impossible.
@@ -246,9 +250,11 @@ Lorsqu'A. passait près de moi je voyais dans ma tête les images d'une lame qui
 Ces images me provoquaient une sensation très froide et glaçante, et je les chassait très vite de mon esprit avec force, mais elles me laissaient la trace d'un frisson très désagrable.
 
 La vie suivait son cours, et je ressentais toujours un vide immense m'habiter. 
-Je n'étais plus qu'une façace ; un habit trop grand pour moi.
-Je portais tout mon quotidien à bout de bras.
+Je me sentais devenir une façace ; un habit trop grand pour moi.
+Je portais mon quotidien de plus en plus à bout de bras.
 Mais intérieurement je me sentais complètement abandonné et inutile pour personne.
+A. était en colère contre mon attitude, elle critiquait mon manque d'énergie et mon surpoids, me demandais de faire des efforts.
+
 
 Puis, quelques semaines et mois plus tard il y eu d'autres images qui m'ont traversé lorsque je rentrais du travail en train.
 En voyant arriver en gare certaines locomotives, j'ai eu les images en tête et j'ai ressenti la facilité de faire un saut au bon moment pour passer sous les roues.
@@ -264,14 +270,30 @@ Et là, je me souvient avoir dû lutter de nombreuses heures de conduites sur au
 Des luttes inlassables et douloureuses contre mon esprit qui délirait, et qui me proposait constamment d'aller braquer le volant pour éclater notre voiture à 130 à l'heure contre un camion ou au travers de la barrière d'un viaduc.
 
 Cette dernière épreuve était vraiment devenue trop intense. 
-Ce n'était pas quelques secondes de délire perdues dans un océan de normalité ; c'était de longues minutes de luttes contre une tendance suicidaire.
+Ce n'était pas quelques secondes de délire perdues dans un océan de normalité ; c'était de longues minutes de luttes contre une tendance violente et suicidaire.
 
-Je me suis vraiment senti désarmé et mal à l'aise de cette situation que je ne comprenais pas.
+Il fallait que cela cesse, et je me suis vraiment senti désarmé et mal à l'aise de cette situation que je ne comprenais pas.
 
-A mon retour de congés, j'ai alors décidé de proposer de nouveau des sorties pour mon loup intérieur.
+A mon retour de congés, j'ai alors décidé de proposer de nouveau des sorties pour mon loup intérieur.  
 Je voyais bien que A. n'étais pas disponible pour en parler, stressée par le quotidien, complètement indisponible pour aborder les sujets délicats, dans une posture agressive et énervée.
 
-Je me suis fait la promesse intérieure de prendre soin de moi, et soin de lui.
-En me basant sur les cadres précédents qui avaient été établis avec A. j'ai alors formulé un cadre encore plus restrictif ; en me disant que cette fois-ci j'allais réussir à bien le tenir et éviter les débordements.
+Je me suis fait la promesse intérieure de prendre soin de moi, et soin de lui.  
+En me basant sur les cadres précédents qui avaient été établis avec A. j'ai pris l'initiative de formuler un cadre encore plus restrictif ; en me disant que je ne pouvais plus me permettre de ne pas vivre ma vie avec ce loup.
+J'espérais qu'avec cette nouvelle approche cette fois-ci j'allais réussir à revivre.  
 
-A ma grande surprise j'ai eu une réponse de L. 
+A ma grande surprise j'ai eu une réponse d'une jeune femme magnifique pour qui mes conditions et ma situation familiale n'ont pas été repoussantes.  
+J'ai annoncé à A. que je commençais de nouvelles excursions de mon loup, et que je commençais mes rencontres avec L.
+Au fil de mes échanges avec L., je découvrais un être merveilleux et fantastique, aux multiples talents, à la force impressionnante, et avec un coeur merveilleux.  
+Telle une sirène fragile, elle a chanté sur mes blessures et redonné vie à mon loup intime, et je ressens l'envie et le besoin de me soucier de son bien être et de son bonheur.  
+
+Après avoir compris que A. ne pouvait et ne souhaitait pas de mon loup dans sa vie.    
+Je faisais maintenant la rencontre de L. qui pouvait pleinement l'embrasser et en prendre soin.  
+Après avoir souffert d'une moitié de coeur déserté et nécrosé, je ressentais avec L. que l'énergie vitale lui revenait, comme de l'eau hydratant une terre desséchée.
+
+Je me retrouvais assez vite avec deux moitiés de coeurs battants de manière si différentes.  
+Et des questions abyssales qui ne manquent de surgir ;  
+D'un côté l'amour de mon cercle familial, mes enfants et ma maison.  
+De l'autre toutes ces passions partagée avec L., et ces soins apportées à des blessures profondes.  
+Au fil des discussions, mon loup a gagné en force et en assurance, et ses envies se sont de nouveau développées.
+
+Je
