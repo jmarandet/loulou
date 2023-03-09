@@ -171,6 +171,8 @@ Et le loup se remettait doucement à frétiller, alors je cherchais comment le r
 Mais il était censé être resté à la porte ce loup... et voilà qu'en un rien de temps il grossissait à vue d'oeil, aussi emcombrant qu'un éléphant. 
 Et puis je me suis adapté à la situation ; à faire semblant d'être normal, tout en gérant mon loup tant bien que mal.
 
+## Dualités
+
 Aux côtés du grand cheval blanc de A., mon loup se tenait loin derrière pour suivre notre la trace, même s'il nous servait en me donnant la force de tenir et d'engager nos aventures.
 Je le gérais, un peu au loin, sans qu'il se fasse trop remarquer.
 
@@ -195,6 +197,8 @@ Ce mauvais manège aurais pu durer longtemps.
 5 ans de vie commune, puis 10, un mariage, puis 15,...  
 ![chariot](img/chariot.jpg)  
 Sur cette route pleine de cailloux et de nids de poules, notre couple formé d'un cheval blanc et d'un loup un peu miteu tirait toujours la charrue, et accueillait un beau lapin, un chat, puis deux enfants... et nous achetions notre première maison.
+
+## La dernière goutte 
 Tout était merveilleux.
 
 Puis il y eu une brisure.
@@ -224,6 +228,7 @@ Mon coeur était effectivement purgé.
 Sauf qu'il avait laissé place à un désert...
 Mon loup n'était maintenant plus là pour me venir en aide, et tout un pan de mon coeur était maintenant laissé à l'abandon, complètement nu, sec, craquelé, et si plein de vides...
 
+## Sombrer 
 Alors, lorsque les difficultés de la vie se sont présentées à moi, je les ai pris en pleine face, sans avoir la force intérieur pour les dévorer, et sans savoir où trouver de réconfort.
 Et j'ai eu mal.
 Très mal.
@@ -274,6 +279,7 @@ Ce n'était pas quelques secondes de délire perdues dans un océan de normalit�
 
 Il fallait que cela cesse, et je me suis vraiment senti désarmé et mal à l'aise de cette situation que je ne comprenais pas.
 
+## Découverte d'une sirène 
 A mon retour de congés, j'ai alors décidé de proposer de nouveau des sorties pour mon loup intérieur.  
 Je voyais bien que A. n'étais pas disponible pour en parler, stressée par le quotidien, complètement indisponible pour aborder les sujets délicats, dans une posture agressive et énervée.
 
@@ -293,7 +299,23 @@ Après avoir souffert d'une moitié de coeur déserté et nécrosé, je ressenta
 Je me retrouvais assez vite avec deux moitiés de coeurs battants de manière si différentes.  
 Et des questions abyssales qui ne manquent de surgir ;  
 D'un côté l'amour de mon cercle familial, mes enfants et ma maison.  
-De l'autre toutes ces passions partagée avec L., et ces soins apportées à des blessures profondes.  
+De l'autre toutes ces passions partagée avec L., et ces soins naturels et instinctifs apportées à des blessures profondes.    
 Au fil des discussions, mon loup a gagné en force et en assurance, et ses envies se sont de nouveau développées.
 
-Je
+## Assumer le loup
+
+J'ai compris que je ne peux plus faire machine arrière et que je dois assumer et faire vivre correctement ce loup dans ma vie.  
+J'ai besoin de lui rendre sa liberté.  
+J'ai besoin de lui offrir un avenir.  
+Je souhaite vivre avec L., des aventures qui permettent de s'épanouir pleinement.  
+Je souhaites aussi préserver mes enfants, et A. des dangers et des souffrances qui risquent d'apparaître dans les situations compliquées.  
+
+Toutefois je me sens dans un moment compliqué, entre Terre et Mer.  
+Entre la solidité du cadre familial, et la fluidité des sentiments.  
+Je suis partagé entre des besoins et des désirs différents, et je souhaites apporter le meilleur à chacun.  
+Au moment où j'écris ces lignes je ne sais comment conjuguer les choses, si je pourrais poursuivre avec A. et L.  
+
+Je sais que je ne peux plus permettre qu'il soit fait de mal à mon loup.   
+Il ne pourra plus être exclu maintenant.  
+Je dois le défendre et lui permettre de vivre sa vie.  
+De le respecter pleinement.  
